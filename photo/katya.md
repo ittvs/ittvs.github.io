@@ -4,6 +4,8 @@ title: Фотографии Кати
 
 ## Фотографии Кати
 
+[Катя, Ноябрьская](https://yadi.sk/a/q0Qt7rHirDByiA)
+
 [Катя в ванной](https://yadi.sk/a/wbAI2YVQ3anNG7)
 
 [Катя на Воробьевых Горах](https://yadi.sk/a/0lBgKkDb3ahSzK)
