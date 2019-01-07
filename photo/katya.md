@@ -4,7 +4,7 @@ title: Фотографии Кати
 
 ## Фотографии Кати
 
-[Катя, январская "Новогодняя"](https://yadi.sk/a/ROACAX1dSAYqvQ)
+[Катя, январская "Новогодняя"](https://yadi.sk/a/Idq4swaU81NhAQ)
 
 [Катя, серый фон, декабрьская](https://yadi.sk/a/rxXtfAXh5ZSicw)
 
