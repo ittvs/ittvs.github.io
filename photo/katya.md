@@ -6,7 +6,7 @@ title: Фотографии Кати
 
 ### В обработке
 
-Нет
+[Катя, апрель 2019, белый фон (проба)](https://drive.google.com/open?id=1jTlwc45jH0WUC5j1w9JkOpL4arL1RndU)
 
 ### Готовые
 
