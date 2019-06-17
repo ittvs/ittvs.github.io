@@ -8,7 +8,11 @@ title: Фотографии Кати
 
 [Катя, свежий воздух, 2019](https://drive.google.com/open?id=1v2CNog8Ain_yzxRsEJLrjXIDysJD2ENR)
 
+[Коты и кошки, котокафе, 2019](https://drive.google.com/open?id=149clxUIU6jFMjKAcAJr-AG7osfzQ_lP3)
+
 ### В обработке
+
+[Катя, июнь 2019, Котокафе](https://drive.google.com/open?id=1pFMu-6DtrGSmm--fhig4kU4QQH3NAD7S)
 
 [Катя, май 2019, желтый фон](https://drive.google.com/open?id=100-POIBLY68V6e4l6Tjp2M5YGBybjKda)
 
