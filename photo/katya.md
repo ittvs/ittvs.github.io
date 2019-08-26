@@ -6,6 +6,8 @@ title: Фотографии Кати
 
 ### Пополняемые
 
+[Катя, животные, Балашиха, 2019](https://drive.google.com/open?id=1BwJ1YHTl_hK-mKBNlW8QCgEDCQITPipH)
+
 [Катя, свежий воздух, 2019](https://drive.google.com/open?id=1v2CNog8Ain_yzxRsEJLrjXIDysJD2ENR)
 
 [Коты и кошки, котокафе, 2019](https://drive.google.com/open?id=149clxUIU6jFMjKAcAJr-AG7osfzQ_lP3)
