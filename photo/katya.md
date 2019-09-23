@@ -14,6 +14,8 @@ title: Фотографии Кати
 
 [Катя, макияж, сентябрь 2019](https://drive.google.com/open?id=1Qt1rHpnh5rSaojEdepyxcQAJt2eba6d8)
 
+[Катя, "Сентябрьская", сентябрь 2019](https://drive.google.com/open?id=1326-VAdOf6WvM5Q_URiIkdbvejn97MNd)
+
 ### Готовые
 
 [Катя, июль 2019, Проба](https://drive.google.com/open?id=13nTnTzSEbG-lIyiqOdUNxB1ufT2oV-ox)
