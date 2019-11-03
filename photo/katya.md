@@ -6,6 +6,8 @@ title: Фотографии Кати
 
 ### Пополняемые
 
+[Совы, Совиный дом](https://drive.google.com/open?id=1P9ysBGd_RW9MtV1rltHhHHmqBGJf-1n2)
+
 [Катя, животные, Балашиха, 2019](https://drive.google.com/open?id=1BwJ1YHTl_hK-mKBNlW8QCgEDCQITPipH)
 
 [Коты и кошки, котокафе, 2019](https://drive.google.com/open?id=149clxUIU6jFMjKAcAJr-AG7osfzQ_lP3)
