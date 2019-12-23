@@ -14,11 +14,13 @@ title: Фотографии Кати
 
 ### В обработке
 
+[Катя, "На столе", декабрь 2019](https://drive.google.com/open?id=1Go3Z7f_-kn4h1Uj89POtVW9QgE-fAhWp)
+
+### Готовые
+
 [Катя, дополнение к сентябрьским, октябрь 2019](https://drive.google.com/open?id=1HQ_VGt7TGqHlwqZno8bMUdPAXFrKy5JJ)
 
 [Катя, "Сентябрьская", сентябрь 2019](https://drive.google.com/open?id=1326-VAdOf6WvM5Q_URiIkdbvejn97MNd)
-
-### Готовые
 
 [Катя, макияж, сентябрь 2019](https://drive.google.com/open?id=1Qt1rHpnh5rSaojEdepyxcQAJt2eba6d8)
 
