@@ -14,6 +14,8 @@ title: Фотографии Кати
 
 ### В обработке
 
+[Катя, "Проба нового света", январь 2020](https://drive.google.com/open?id=1sEONfOZTxvwY2ryPMD5Ee_mnnw9RgNIe)
+
 [Катя, "На столе", декабрь 2019](https://drive.google.com/open?id=1Go3Z7f_-kn4h1Uj89POtVW9QgE-fAhWp)
 
 ### Готовые
