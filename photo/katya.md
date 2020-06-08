@@ -12,6 +12,8 @@ title: Фотографии Кати
 
 [Коты и кошки, котокафе, 2019](https://drive.google.com/open?id=149clxUIU6jFMjKAcAJr-AG7osfzQ_lP3)
 
+[Странное лето 2020](https://drive.google.com/drive/folders/1H2fzr3AVyBcKtacRHxaG4QwnyDR_eZXy)
+
 ### В обработке
 
 [Катя, "Оттенки", март 2020](https://drive.google.com/open?id=1ybwOasRJWkgpjvKpQOJXWRtiHTlY17mk)
