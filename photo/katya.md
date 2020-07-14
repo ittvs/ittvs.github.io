@@ -14,6 +14,8 @@ title: Фотографии Кати
 
 [Странное лето 2020](https://drive.google.com/drive/folders/1H2fzr3AVyBcKtacRHxaG4QwnyDR_eZXy)
 
+[Странное лето на свежем воздухе, 2020](https://drive.google.com/drive/folders/1LY7pirNJGhK5zZsO4iaE35JNbkMOtqVt)
+
 ### В обработке
 
 [Катя, "Лето на столе, июнь 2020"](https://drive.google.com/drive/folders/1h-PvgEaJjU3C2cKGdI2tX1txwjhtKoK0)
