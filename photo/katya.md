@@ -18,7 +18,7 @@ title: Фотографии Кати
 
 ### В обработке
 
-[Катя, "Лето на столе, сентябрь 2020](https://drive.google.com/drive/folders/1gsCfzIANJ3Ze2sc1UNdtu6uAwrlCjstG)
+[Катя, "Лето на столе", сентябрь 2020](https://drive.google.com/drive/folders/1gsCfzIANJ3Ze2sc1UNdtu6uAwrlCjstG)
 
 ### Готовые
 
