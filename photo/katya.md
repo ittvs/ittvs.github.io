@@ -18,11 +18,13 @@ title: Фотографии Кати
 
 ### В обработке
 
+[Ню на столе, февраль-март 2021](https://drive.google.com/drive/folders/1ftI9dLEgqpOyHxsGhc4NwL6afCwzBRan)
+
 [Экспериметы с освещением, ноябрь 2020](https://drive.google.com/drive/folders/1Rn-ZaYpc9T0kgqKpmAHa7RP5bdwItYOr)
 
-[Катя, "Лето на столе", сентябрь 2020](https://drive.google.com/drive/folders/1gsCfzIANJ3Ze2sc1UNdtu6uAwrlCjstG)
-
 ### Готовые
+
+[Катя, "Лето на столе", сентябрь 2020](https://drive.google.com/drive/folders/1gsCfzIANJ3Ze2sc1UNdtu6uAwrlCjstG)
 
 [Катя, "Лето на столе, июнь 2020"](https://drive.google.com/drive/folders/1h-PvgEaJjU3C2cKGdI2tX1txwjhtKoK0)
 
