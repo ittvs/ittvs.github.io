@@ -20,7 +20,7 @@ title: Фотографии Кати
 
 [Ню на столе, февраль-март 2021](https://drive.google.com/drive/folders/1ftI9dLEgqpOyHxsGhc4NwL6afCwzBRan)
 
-[Экспериметы с освещением, ноябрь 2020](https://drive.google.com/drive/folders/1Rn-ZaYpc9T0kgqKpmAHa7RP5bdwItYOr)
+[Эксперименты с освещением, ноябрь 2020](https://drive.google.com/drive/folders/1Rn-ZaYpc9T0kgqKpmAHa7RP5bdwItYOr)
 
 ### Готовые
 
