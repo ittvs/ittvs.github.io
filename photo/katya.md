@@ -20,6 +20,8 @@ title: Фотографии Кати
 
 [Окошко, май 2021](https://drive.google.com/drive/folders/1yUZEYRyPBOxeOjrepA_2inizMuWWaIEh)
 
+[Окошко, часть 2, май 2021](https://drive.google.com/drive/folders/1DLiu-gCS4rBSducNVAXUMP06O-WmueKk)
+
 [Ню на столе, февраль-март 2021](https://drive.google.com/drive/folders/1ftI9dLEgqpOyHxsGhc4NwL6afCwzBRan)
 
 ### Готовые
