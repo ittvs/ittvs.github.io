@@ -18,11 +18,15 @@ title: Фотографии Кати
 
 ### В обработке
 
+[Лето, окно на кухне, июль 2022](https://drive.google.com/drive/folders/1Tr5mrBI8-gy4ON3SVXQm0h3H51LKH7mG)
+
+[Осень, на полу, ноябрь 2022](https://drive.google.com/drive/folders/15YyIYldDcsL2ac7Srjaex8tiqauWATgP)
+
+### Готовые
+
 [Весна, вспышка, март-май 2022](https://drive.google.com/drive/folders/1wBneruf3zOnTINv4k9MI8i2ChceNH74e)
 
 [Только вспышка, ноябрь 2021](https://drive.google.com/drive/folders/1-kcKCgAED7QTeTKS1Odb0yEa-IU0O0Yb)
-
-### Готовые
 
 [Осенние, октябрь 2021](https://drive.google.com/drive/folders/15zx_tEyf0C7LgM3OofH5rqCzaT2n2vlD)
 
