@@ -22,6 +22,8 @@ title: Фотографии Кати
 
 [Осень, на полу, ноябрь 2022](https://drive.google.com/drive/folders/15YyIYldDcsL2ac7Srjaex8tiqauWATgP)
 
+[Зима, стул в комнате, январь 2023](https://drive.google.com/drive/folders/1tMv7jEBbP8txh5ap8J7a7Pwz3K4SwI4q)
+
 ### Готовые
 
 [Весна, вспышка, март-май 2022](https://drive.google.com/drive/folders/1wBneruf3zOnTINv4k9MI8i2ChceNH74e)
