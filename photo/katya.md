@@ -18,11 +18,13 @@ title: Фотографии Кати
 
 ### В обработке
 
-[Зима, стул в комнате, январь 2023](https://drive.google.com/drive/folders/1tMv7jEBbP8txh5ap8J7a7Pwz3K4SwI4q)
-
 [Февральские, до тату, февраль 2023](https://drive.google.com/drive/folders/13qMmMWOVnyb6AU20ffJFLx9U97h_SyfD)
 
+[Тату сделаны! Первая часть, июнь 2023](https://drive.google.com/drive/folders/1EBZx4dQ-PQpvSZOw-9RoWptqQR6Y3qik)
+
 ### Готовые
+
+[Зима, стул в комнате, январь 2023](https://drive.google.com/drive/folders/1tMv7jEBbP8txh5ap8J7a7Pwz3K4SwI4q)
 
 [Лето, окно на кухне, июль 2022](https://drive.google.com/drive/folders/1Tr5mrBI8-gy4ON3SVXQm0h3H51LKH7mG)
 
