@@ -4,7 +4,7 @@ title: Фотографии Кати
 
 ## Фотографии Кати
 
-### Пополняемые
+### Outside, не ню
 
 [Совы, Совиный дом](https://drive.google.com/open?id=1P9ysBGd_RW9MtV1rltHhHHmqBGJf-1n2)
 
@@ -16,13 +16,13 @@ title: Фотографии Кати
 
 [Странное лето на свежем воздухе, 2020](https://drive.google.com/drive/folders/1LY7pirNJGhK5zZsO4iaE35JNbkMOtqVt)
 
-### В обработке
+[Зима на свежем воздухе 2023-2024, 01](https://drive.google.com/drive/folders/1LLAmFe6fLxYIZKGYddwaN5iWBsxDI9qF)
+
+### Ню, дома
 
 [Февральские, до тату, февраль 2023](https://drive.google.com/drive/folders/13qMmMWOVnyb6AU20ffJFLx9U97h_SyfD)
 
 [Тату сделаны! Первая часть, июнь 2023](https://drive.google.com/drive/folders/1EBZx4dQ-PQpvSZOw-9RoWptqQR6Y3qik)
-
-### Готовые
 
 [Зима, стул в комнате, январь 2023](https://drive.google.com/drive/folders/1tMv7jEBbP8txh5ap8J7a7Pwz3K4SwI4q)
 
