@@ -14,4 +14,4 @@ title: Фотографии Кати
 
 ### Ню
 
-**Аврора 01**: Часть 1, [Часть 2](https://drive.google.com/drive/folders/1Dgc8fGh1AbFHVO01O4oNlU4crIusUsYT), Часть 3. [Исходники](https://drive.google.com/drive/folders/1InTpSGyjMsm4tWNa8lJa2Q6QprTXNqNt).
+**Аврора 01**: [Часть 1](https://drive.google.com/drive/folders/1rY3V0-oNAHNZwlKX_L_IKzhnbClCOAQf), [Часть 2](https://drive.google.com/drive/folders/1Dgc8fGh1AbFHVO01O4oNlU4crIusUsYT), Часть 3. [Исходники](https://drive.google.com/drive/folders/1InTpSGyjMsm4tWNa8lJa2Q6QprTXNqNt).
