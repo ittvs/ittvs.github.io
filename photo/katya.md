@@ -20,4 +20,4 @@ title: Фотографии Кати
 
 **No Name 02**: [Часть 1. Окно](https://drive.google.com/drive/folders/1DSxxYy1TjGcXRZk3WX9qMg5mKF5m0KIW), [Часть 2. Кровать](https://drive.google.com/drive/folders/1Ck_10yjboTcF6m-oKMGi5bRzOqCrD3am).
 
-**Новый дом в Видном**: [Часть 1. Знакомство](https://drive.google.com/drive/folders/1ycoXQk2IUwy6p97iCvDfofk2gFTSxaKH), [Часть 2. Диван](https://drive.google.com/drive/folders/1SqQfuHtihCAeU-8C_FwgC_2jQ_kMEIgN), [Часть 3. Тоже диван](https://drive.google.com/drive/folders/13hi_5gjJ1xlqdn4PB5i3u5j0JDrZo_nM).
+**Новый дом в Видном**: [Часть 1. Знакомство](https://drive.google.com/drive/folders/1ycoXQk2IUwy6p97iCvDfofk2gFTSxaKH), [Часть 2. Диван](https://drive.google.com/drive/folders/1SqQfuHtihCAeU-8C_FwgC_2jQ_kMEIgN), [Часть 3. Тоже диван](https://drive.google.com/drive/folders/13hi_5gjJ1xlqdn4PB5i3u5j0JDrZo_nM), [Часть 4. Отдельные фото](https://drive.google.com/drive/folders/1lzs7oUieWjBfT6ybTXfhw7dCFsX6j2Rr).
