@@ -14,7 +14,7 @@ title: Фотографии Кати
 
 [Герда и Буря. 01](https://drive.google.com/drive/folders/1bmEn1eCDOJBeSmCxhaQ6IOvItM4Vekc4)
 
-**Герда, Буря и Коты**: [Буря и коты](https://drive.google.com/drive/folders/2wQhMIJ1Bl73jSg5Pi_ZMNGaXn9BRFnkM), [Герда дома](https://drive.google.com/drive/folders/1CwdSf_qmkKbK5CYpaVGNnJ7F_VXlq-V-)
+**Герда, Буря и Коты**: [Буря и коты](https://drive.google.com/drive/folders/1wQhMIJ1Bl73jSg5Pi_ZMNGaXn9BRFnkM), [Герда дома](https://drive.google.com/drive/folders/1CwdSf_qmkKbK5CYpaVGNnJ7F_VXlq-V-)
 
 ### Ню
 
