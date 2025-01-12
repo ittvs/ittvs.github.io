@@ -25,3 +25,5 @@ title: Фотографии Кати
 **Новый дом в Видном**: [Часть 1. Знакомство](https://drive.google.com/drive/folders/1ycoXQk2IUwy6p97iCvDfofk2gFTSxaKH), [Часть 2. Диван](https://drive.google.com/drive/folders/1SqQfuHtihCAeU-8C_FwgC_2jQ_kMEIgN), [Часть 3. Тоже диван](https://drive.google.com/drive/folders/13hi_5gjJ1xlqdn4PB5i3u5j0JDrZo_nM), [Часть 4. Отдельные фото](https://drive.google.com/drive/folders/1lzs7oUieWjBfT6ybTXfhw7dCFsX6j2Rr), [Окончательные фото (все предыдущие части потом удалим)](https://drive.google.com/drive/folders/1BamlU_onJGtJvamifNF0SUOTib7v3eF6).
 
 **Фотосессия в Видном** Первая Часть, постоянный свет; [Часть 1. Собаки](https://drive.google.com/drive/folders/1VvNe5ZbegsMlsZwoMI0KLnKZeipKDfy-) [Часть 2. Катя на кровати](https://drive.google.com/drive/folders/1_Rn_GwSjbhGIyfKS8Y6_XgyNQy9HkPgN)
+
+**Фотосессия в Видном** Вторая Часть, вспышка; [Зеркало сзади](https://drive.google.com/drive/folders/1lgOXiQY90uXRLE8hMlaI4SL0x-9cXFWx)
