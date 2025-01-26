@@ -26,4 +26,4 @@ title: Фотографии Кати
 
 **Фотосессия в Видном** Первая Часть, постоянный свет; [Часть 1. Собаки](https://drive.google.com/drive/folders/1VvNe5ZbegsMlsZwoMI0KLnKZeipKDfy-) [Часть 2. Катя на кровати](https://drive.google.com/drive/folders/1_Rn_GwSjbhGIyfKS8Y6_XgyNQy9HkPgN)
 
-**Фотосессия в Видном** Вторая Часть, вспышка; [Зеркало сзади](https://drive.google.com/drive/folders/1lgOXiQY90uXRLE8hMlaI4SL0x-9cXFWx)
+**Фотосессия в Видном** Вторая Часть, вспышка; [Зеркало сзади](https://drive.google.com/drive/folders/1lgOXiQY90uXRLE8hMlaI4SL0x-9cXFWx): [Окончательные фото](https://drive.google.com/drive/folders/1OOp7Wgz7cWmtfRWJkWWu6C0uVykcCRU9)
