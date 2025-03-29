@@ -28,4 +28,4 @@ title: Фотографии Кати
 
 **Фотосессия в Видном** Вторая Часть, вспышка; [Зеркало сзади](https://drive.google.com/drive/folders/1lgOXiQY90uXRLE8hMlaI4SL0x-9cXFWx): [Окончательные фото](https://drive.google.com/drive/folders/1OOp7Wgz7cWmtfRWJkWWu6C0uVykcCRU9)
 
-**Мотоцикл** Фотосессия в студии "Дали", зал парковка; [Мотоцикл и шлем](https://drive.google.com/drive/folders/1sW6dXycDthoKmH9bafC5yQuRbSOqRrSX)
+**Мотоцикл** Фотосессия в студии "Дали", зал парковка; [Мотоцикл и шлем](https://drive.google.com/drive/folders/1sW6dXycDthoKmH9bafC5yQuRbSOqRrSX), [Окончательные фото](https://drive.google.com/drive/folders/1VMYFgL3KSSBrspbvhFNpPNH7RxxzRQYi)
