@@ -31,3 +31,5 @@ title: Фотографии Кати
 **Мотоцикл** Фотосессия в студии "Дали", зал парковка; [Мотоцикл и шлем](https://drive.google.com/drive/folders/1sW6dXycDthoKmH9bafC5yQuRbSOqRrSX), [Отобраные для твиттера](https://drive.google.com/drive/folders/14StSTHFIJX9JN9lA9ktuy0RKiNYfIa4Q), [Окончательные фото](https://drive.google.com/drive/folders/1VMYFgL3KSSBrspbvhFNpPNH7RxxzRQYi)
 
 **Фигура** Фотосессия в интерьерной фотостудии R2D3; [Катя на солнце](https://drive.google.com/drive/folders/1pkxvMtoAFmctCeXk5HJJJw-ZbRZCrPGd), [Инстаграм и Твиттер](https://drive.google.com/drive/folders/1xylvpXHvNC1Bmothapz0_Dc2O-HrNDJ5), [Окончательные фото](https://drive.google.com/drive/folders/1MmQNpdCCGH_ZcBboU1AxMd0tv-mi6IDl)
+
+**Тени** Снова дома 27 сентября 2025 г.; [Часть первая и единственная](https://drive.google.com/drive/folders/1xEdSzPR2Gg3DC71MqKMUQ_eOyIN22jH-)
