@@ -32,4 +32,4 @@ title: Фотографии Кати
 
 **Фигура** Фотосессия в интерьерной фотостудии R2D3; [Катя на солнце](https://drive.google.com/drive/folders/1pkxvMtoAFmctCeXk5HJJJw-ZbRZCrPGd), [Инстаграм и Твиттер](https://drive.google.com/drive/folders/1xylvpXHvNC1Bmothapz0_Dc2O-HrNDJ5), [Окончательные фото](https://drive.google.com/drive/folders/1MmQNpdCCGH_ZcBboU1AxMd0tv-mi6IDl)
 
-**Тени** Снова дома 27 сентября 2025 г.; [Часть первая и единственная](https://drive.google.com/drive/folders/1xEdSzPR2Gg3DC71MqKMUQ_eOyIN22jH-)
+**Тени** Снова дома 27 сентября 2025 г.; [Часть первая и единственная](https://drive.google.com/drive/folders/1xEdSzPR2Gg3DC71MqKMUQ_eOyIN22jH-) [Инстаграм и Твиттер](https://drive.google.com/drive/folders/1cUEkxlFv5l5xrfMCT6C2oDfn1gWEIh2J) [Окончательные фото](https://drive.google.com/drive/folders/1DhJ6NwMN_l91hEyNfuBhpk98hReujurm)
