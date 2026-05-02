@@ -34,4 +34,4 @@ title: Фотографии Кати
 
 **Тени** Снова дома 27 сентября 2025 г.; [Часть первая и единственная](https://drive.google.com/drive/folders/1xEdSzPR2Gg3DC71MqKMUQ_eOyIN22jH-); [Инстаграм и Твиттер](https://drive.google.com/drive/folders/1cUEkxlFv5l5xrfMCT6C2oDfn1gWEIh2J); [Окончательные фото](https://drive.google.com/drive/folders/1DhJ6NwMN_l91hEyNfuBhpk98hReujurm).
 
-**Меч и пистолет** Зал "Япония", Дали, 29 марта 2026 г.; [Меч, пистолет, сакрура](https://drive.google.com/drive/folders/1YUf6fxL6HYQg-8uN075EOm1kCXhf3rjs); [Инстаграм и Твиттер](https://drive.google.com/drive/folders/1WAEK2CzSTmFoP6OYx_zJUFdXuN4rppQ2); [Окончательные фото](https://drive.google.com/drive/folders/17ePp9S8ncvQ3-TMkauOXw85Ilk4PVV-4).
+**Меч и пистолет** Зал "Япония", Дали, 29 марта 2026 г.; [Меч, пистолет, сакрура](https://drive.google.com/drive/folders/1YUf6fxL6HYQg-8uN075EOm1kCXhf3rjs); [Инстаграм и Твиттер](https://drive.google.com/drive/folders/17ePp9S8ncvQ3-TMkauOXw85Ilk4PVV-4); [Окончательные фото](https://drive.google.com/drive/folders/1WAEK2CzSTmFoP6OYx_zJUFdXuN4rppQ2).
